@@ -9,7 +9,7 @@ to create one.
 If interested in my comments, research and approach I invite you to
 read the following post in my blog:
 
-<T.B.D.>
+https://www.johncanessa.com/2021/06/09/red-john-is-back/
 
 Remember that one of the best ways to learn is to read and experiment.
 
